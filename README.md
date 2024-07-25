@@ -1,1 +1,1 @@
-# blog-sem-ntico-
+# blog-semantico-
